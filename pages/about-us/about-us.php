@@ -29,7 +29,7 @@ Atlas Would like to thank everyone for their support as we are cleared for take 
 <br />
 Please visit our Facebook and send a request!<br />
 EMAIL US: info@atlaspresents.com<br />
-115 E. Kinney St. <br />
+Franklin St. <br />
 Newark, NJ 07105-1107 USA<br />
 <br />
 Email: Info@atlaspresents.com<br />
